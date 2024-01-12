@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1vjZ7e1lCJUsxwRcaeqEaxZPbt21PI0zP/view?usp=drive_link](https://drive.google.com/file/d/1vjZ7e1lCJUsxwRcaeqEaxZPbt21PI0zP/view?usp=drive_link)
 
-<h3 align="left">Connect with me:</h3>
+<img align="right" height="150" src="https://media.tenor.com/PqJ7yMX9GFoAAAAM/bruce-almighty-comedy.gif"  />
 <p align="left">
 </p>
 
