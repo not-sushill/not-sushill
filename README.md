@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sushilravi123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vjZ7e1lCJUsxwRcaeqEaxZPbt21PI0zP/view?usp=drive_link](https://drive.google.com/file/d/1vjZ7e1lCJUsxwRcaeqEaxZPbt21PI0zP/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1j0k1maR015QIg1VcNSQmAypl1FH7cIZe/view?usp=sharing]
 
 <img align="right" height="150" src="https://media.tenor.com/PqJ7yMX9GFoAAAAM/bruce-almighty-comedy.gif"  />
 <p align="left">
